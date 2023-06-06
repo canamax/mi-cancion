@@ -9,12 +9,16 @@ Fonsi, DY
 Uy, uy, uy, uy, uy,
 
 Hey yeah
-Lelelelel, lelelele, lelelele 
+
+Pipiripi,pipiripi Daddy
+
+lets'Go!
+
 Go!
 
 Sí, sabes que ya llevo un rato mirándote
 
-Tengo que bailar contigo hoy (DY)
+Tengo que perrear contigo hoy (DY)
 
 Vi que tu mirada ya estaba llamándome
 
