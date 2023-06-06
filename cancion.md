@@ -2,17 +2,19 @@
 #### Luis Fonsi
 ---
 
-¡Ay!
+¡Ay! ¡Uy!
 
 Fonsi, DY
 
-Oh, oh no, oh no (oh)
+Uy, uy, uy, uy, uy,
 
 Hey yeah
 
 Pipiripi,pipiripi Daddy
 
 lets'Go!
+
+Go!
 
 Sí, sabes que ya llevo un rato mirándote
 
@@ -34,7 +36,7 @@ Todos mis sentidos van pidiendo más
 
 Esto hay que tomarlo sin ningún apuro
 
-Despacito
+ma lento
 
 Quiero respirar tu cuello despacito
 
@@ -42,7 +44,7 @@ Deja que te diga cosas al oído
 
 Para que te acuerdes si no estás conmigo
 
-Despacito
+lento
 
 Quiero desnudarte a besos despacito
 
@@ -108,7 +110,7 @@ Deja que te diga cosas al oído (yo)
 
 Para que te acuerdes si no estás conmigo
 
-Despacito
+lento
 
 Quiero desnudarte a besos despacito (yeh)
 
@@ -132,7 +134,7 @@ Hasta provocar tus gritos (uh oh, uh oh)
 
 Y que olvides tu apellido
 
-Despacito
+lento
 
 Vamo' a hacerlo en una playa en Puerto Rico
 
@@ -156,4 +158,4 @@ Hasta provocar tus gritos (eh-oh) (Fonsi)
 
 Y que olvides tu apellido (DY)
 
-Despacito
+lento
