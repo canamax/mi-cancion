@@ -10,13 +10,13 @@ Oh, oh no, oh no (oh)
 
 Hey yeah
 
-Diridiri, dirididi Daddy
+Pipiripi,pipiripi Daddy
 
-Go!
+lets'Go!
 
 Sí, sabes que ya llevo un rato mirándote
 
-Tengo que bailar contigo hoy (DY)
+Tengo que perrear contigo hoy (DY)
 
 Vi que tu mirada ya estaba llamándome
 
