@@ -2,16 +2,14 @@
 #### Luis Fonsi
 ---
 
-¡Ay!
+¡Ay! ¡Uy!
 
 Fonsi, DY
 
-Oh, oh no, oh no (oh)
+Uy, uy, uy, uy, uy,
 
 Hey yeah
-
-Diridiri, dirididi Daddy
-
+Lelelelel, lelelele, lelelele 
 Go!
 
 Sí, sabes que ya llevo un rato mirándote
